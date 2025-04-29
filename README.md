@@ -8,3 +8,12 @@
 
 
 ![Screenshot 2025-01-23 162336](https://github.com/user-attachments/assets/0d8b3c63-3c3f-4aec-966f-4b3d033f31b9)
+
+
+
+
+
+
+
+
+![ai chat app img](https://github.com/user-attachments/assets/349c2284-5a81-42f7-98e8-46f85cd013ea)
