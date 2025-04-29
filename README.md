@@ -16,4 +16,3 @@
 
 
 
-![ai chat app img](https://github.com/user-attachments/assets/349c2284-5a81-42f7-98e8-46f85cd013ea)
